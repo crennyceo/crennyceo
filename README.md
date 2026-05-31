@@ -1,3 +1,4 @@
 ![](https://file.garden/aWE03JjPDTWM5GMO/HBS6twSaIAESaPW.jpg)
 
-[strawpage](https://incacraig.straw.page/crenzy) [atabook](https://thecrennyceo.atabook.org/)
+<h6 align="center">
+<a href="https://incacraig.straw.page/crenzy">strawpage</a>    ✦.   <a href="https://thecrennyceo.atabook.org/">‎‎atabook</a>
