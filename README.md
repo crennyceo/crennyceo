@@ -5,4 +5,5 @@
     
     
 ⃟ <p align="center">crenny ceo btw. ya. crenny overpowers ^_^
+<p align="center"> c*h enc , w2i at all times
 <p align="center">-16 dni , toxic media dni</p
