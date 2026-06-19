@@ -5,5 +5,6 @@
     
     
 ⃟ <p align="center">crenny ceo btw. ya. since 2017 dont play wif me
-<p align="center"> c*h enc , w2i at all times
-<p align="center">-16 dniuf , toxic media dni
+<p align="center"> tw dry . energetic people scare me
+<p align="center"> c*h enc , w2i always
+<p align="center">-16 dniuf
