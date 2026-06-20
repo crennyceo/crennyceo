@@ -1,5 +1,5 @@
 <p align="center"> 
-    <img src="https://file.garden/aWE03JjPDTWM5GMO/gachacrennydevilsdontfly.png"/>
+    <img src="https://file.garden/aWE03JjPDTWM5GMO/tumblr_p25fxy0ICt1qbscsoo2_1280.gif"/>
 <h6 align="center">
 <a href="https://rentry.co/ctkm-ptverse">rentry</a>    ✦.   <a href="https://thecrennyceo.atabook.org/">‎‎atabook</a>
     
