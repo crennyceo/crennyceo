@@ -1,11 +1,12 @@
     
-　　　　　　　　　　　　　 　　　　　 　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=crennyceo&color=6a83bd&style=plastic&label=　stars)   
+　　　　　　　　　　　　　 　　　　　 　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=crennyceo&color=6a83bd&style=plastic&label=　stars)   
 
-<p align="center"> 
-    <img src="https://file.garden/aWE03JjPDTWM5GMO/tumblr_p25fxy0ICt1qbscsoo2_1280.gif"/>
-<h6 align="center">
+🔭 】consider yourself welcome. 
+
+५ people on my friendlist are always allowed to c+h. 
+
+![](https://file.garden/aWE03JjPDTWM5GMO/tgqfp6.webp)
+
 <a href="https://rentry.co/ctkm-ptverse">rentry</a>    ✦.   <a href="https://thecrennyceo.atabook.org/">‎‎atabook</a>
-    
-    
-⃟ <p align="center">crenny ceo btw. ya. since 2017 dont play wif me
-<p align="center"> c*h enc , w2i always
+      
+crenny ceo btw. yeah. since 2017 dont play wif me.
