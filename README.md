@@ -1,7 +1,7 @@
     
 　　　　　　　　　　　　 　 　　　　　 　　　　 　 　　　 ![](https://komarev.com/ghpvc/?username=crennyceo&color=6a83bd&style=plastic&label=⠀.🪽 )   
 
-<image align="left" width="350" alt="Image" src=https://file.garden/am8KLdl-Vhmhb-x1/gif.gif> 
+<image align="left" width="335" alt="Image" src=https://file.garden/am8KLdl-Vhmhb-x1/gif.gif> 
 
  ㅤ. ㅤkenny / lyss
  
