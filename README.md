@@ -7,7 +7,7 @@
  
  ㅤ⋆ ㅤluis serra navarro yume
  
- ㅤ⋆ ㅤw2i + c*h encouraged
+ ㅤ⋆ ㅤw2i + c*h preferred nd encouraged
 <p align="center">
     <a href="https://rentry.co/ctkm-ptverse">rentry</a>    ˚⟡.   <a href="https://adaata.atabook.org/">‎‎atabook</a> 
 <h6 align="center">
