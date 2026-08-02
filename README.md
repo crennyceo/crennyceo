@@ -11,7 +11,7 @@
 <p align="center">
     <a href="https://rentry.co/ctkm-ptverse">rentry</a>    +   <a href="https://adaata.atabook.org/">‎‎atabook</a> 
 <h6 align="center">
-    <img src="https://file.garden/am8KLdl-Vhmhb-x1/Untitled35_20260802052036.png" width="330" ㅤ@dogboyleon</a>
+    <img src="https://file.garden/am8KLdl-Vhmhb-x1/Untitled35_20260802052036.png" width="330" <a href="https://github.com/dogboyleon"> ㅤ@dogboyleon</a>
 </p>
 
 
