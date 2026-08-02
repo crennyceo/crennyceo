@@ -1,13 +1,17 @@
     
 　　　　　　　　　　　　 　 　　　　　 　　　　 　 　　　 ![](https://komarev.com/ghpvc/?username=crennyceo&color=6a83bd&style=plastic&label=⠀.🪽 )   
 
-<p align="center"> 
-<img src="https://files.catbox.moe/9xqeh6.webp" width="320" align="center"> 
+<image align="left" width="390" alt="Image" src=https://file.garden/am8KLdl-Vhmhb-x1/gif.gif> 
 
+ ㅤ. ㅤkenny / lyss
+ 
+ ㅤ. ㅤluis serra navarro yume
+ 
+  ㅤ. ㅤw2i + c*h encouraged
 <p align="center">
-crenny ceo since 2017 okay ^_^
-<p align="center">
-<a href="https://rentry.co/ctkm-ptverse">rentry</a>    ✦.   <a href="https://thecrennyceo.atabook.org/">‎‎atabook</a> 　　
+    <a href="https://rentry.co/ctkm-ptverse">rentry</a>    +   <a href="https://adaata.atabook.org/">‎‎atabook</a> 
+<h6 align="center">
+    <img src="https://file.garden/am8KLdl-Vhmhb-x1/Untitled35_20260802052036.png" width="330" ㅤ@dogboyleon</a>
 </p>
 
 
