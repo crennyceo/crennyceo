@@ -5,7 +5,7 @@
 
  ㅤ⋆ ㅤkenny / lyss
  
- ㅤ⋆ ㅤluis serra navarro yume
+ ㅤ⋆ ㅤluis serra yume (og + rmk)
  
  ㅤ⋆ ㅤw2i + c*h preferred nd encouraged
 <p align="center">
