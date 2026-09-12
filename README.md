@@ -4,6 +4,9 @@
 <image align="left" width="390" alt="Image" src=https://file.garden/am8KLdl-Vhmhb-x1/HIq-GzdaMAAHfaf__fliter--purple-warm__channel--red__mode--normal.jpeg>
 
 <p align="center">
+    <image src=https://file.garden/am8KLdl-Vhmhb-x1/tumblr_5e6dcc3d99d047f7457c4713e45a12de_73e1c3f0_2048.png>
+
+<p align="center">
     𝘴𝘦𝘳𝘳𝘢𝘸𝘰𝘯𝘨 𝘵𝘳𝘶𝘵𝘩𝘦𝘳
 
 <p align="center">
