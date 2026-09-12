@@ -19,4 +19,4 @@
 <p align="center">
     𝘪 𝘤𝘳𝘰𝘸𝘯 𝘢𝘯𝘺𝘰𝘯𝘦 𝘪 𝘸𝘢𝘯𝘯𝘢 𝘣 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘸𝘪𝘵𝘩
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<a href="https://rentry.co/ctkm-ptverse">𝘳𝘦𝘯𝘵𝘳𝘺</a> . wip . wip
+<a href="https://rentry.co/ctkm-ptverse">𝘳𝘦𝘯𝘵𝘳𝘺</a> ⠀⠀.⠀⠀ wip⠀⠀ . ⠀⠀wip
