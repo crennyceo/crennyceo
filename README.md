@@ -19,4 +19,4 @@
 <p align="center">
     𝘪 𝘤𝘳𝘰𝘸𝘯 = 𝘪 𝘸𝘢𝘯𝘯𝘢 𝘣 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<a href="https://rentry.co/ctkm-ptverse">𝘳𝘦𝘯𝘵𝘳𝘺</a> ⠀⠀⠀ strawpage⠀⠀ ⠀⠀<a href="https://thecrennyceo.atabook.org/">𝘢𝘵𝘢𝘣𝘰𝘰𝘬<
+<a href="https://rentry.co/ctkm-ptverse">𝘳𝘦𝘯𝘵𝘳𝘺</a> ⠀⠀⠀ strawpage⠀⠀ ⠀⠀<a href="https://thecrennyceo.atabook.org/">𝘢𝘵𝘢𝘣𝘰𝘰𝘬</a>
