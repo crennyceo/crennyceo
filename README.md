@@ -3,8 +3,6 @@
 
 <image align="left" width="390" alt="Image" src=https://file.garden/am8KLdl-Vhmhb-x1/HIq-GzdaMAAHfaf__fliter--purple-warm__channel--red__mode--normal.jpeg>
 
-<p align="center"
-
 𝘴𝘦𝘳𝘳𝘢𝘸𝘰𝘯𝘨 𝘵𝘳𝘶𝘵𝘩𝘦𝘳
 
 𝘭𝘶𝘪𝘴 𝘴𝘦𝘳𝘳𝘢 𝘺𝘶𝘮𝘦
