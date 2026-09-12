@@ -17,4 +17,4 @@
 
 wip.
 
-<image width="400" src=https://file.garden/am8KLdl-Vhmhb-x1/tumblr_36005aaf6aba1e741b6d57d4d1f71631_029133d5_400__fliter--purple-warm__channel--red__mode--normal.png>
+<image align="right" width="200" src=https://file.garden/am8KLdl-Vhmhb-x1/tumblr_36005aaf6aba1e741b6d57d4d1f71631_029133d5_400__fliter--purple-warm__channel--red__mode--normal.png>
