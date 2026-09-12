@@ -14,3 +14,6 @@
 
 <p align="center">
     𝘤+𝘩 𝘢𝘯𝘥 𝘸2𝘪 𝘩𝘦𝘢𝘷𝘪𝘭𝘺 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦𝘥
+
+
+https://thecrennyceo.atabook.org/
