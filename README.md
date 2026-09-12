@@ -1,7 +1,7 @@
     
 　　　　　　　　　　　　 　 　　　　　 　　　　 　 　　　 ![](https://komarev.com/ghpvc/?username=crennyceo&color=3B143B&style=plastic&label=💉  )   
 
-<image align="left" width="390" alt="Image" src=https://file.garden/am8KLdl-Vhmhb-x1/HIq-GzdaMAAHfaf__fliter--purple-warm__channel--red__mode--normal.jpeg>
+<image align="left" width="390" alt="Image" src=https://file.garden/am8KLdl-Vhmhb-x1/HIq-GzdaMAAHfaf__fliter--purple-warm__channel--red__mode--normal%20(1).jpeg>
 
 <p align="center">
     <image width="430" src=https://file.garden/am8KLdl-Vhmhb-x1/tumblr_5e6dcc3d99d047f7457c4713e45a12de_73e1c3f0_2048.png>
