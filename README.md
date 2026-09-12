@@ -7,14 +7,14 @@
     <image width="430" src=https://file.garden/am8KLdl-Vhmhb-x1/tumblr_5e6dcc3d99d047f7457c4713e45a12de_73e1c3f0_2048.png>
 
 <p align="center">
-    𝘴𝘦<u>𝘳𝘳𝘢𝘸𝘰𝘯𝘨</u> 𝘵𝘳𝘶𝘵𝘩𝘦𝘳
+    _𝐬𝐞𝐫𝐫𝐚𝐰𝐨𝐧𝐠 𝐭𝐫𝐮𝐭𝐡𝐞𝐫_
 
 <p align="center">
-    𝘭𝘶𝘪𝘴 𝘴𝘦𝘳𝘳𝘢 𝘺𝘶𝘮𝘦
+    _𝐥𝐮𝐢𝐬 𝐬𝐞𝐫𝐫𝐚 𝐲𝐮𝐦𝐞_
 
 <p align="center">
-    𝘤+𝘩 𝘢𝘯𝘥 𝘸2𝘪 𝘩𝘦𝘢𝘷𝘪𝘭𝘺 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦𝘥
+    _𝐜+𝐡 𝐚𝐧𝐝 𝐰𝟐𝐢 𝐡𝐞𝐚𝐯𝐢𝐥𝐲 𝐞𝐧𝐜𝐨𝐮𝐫𝐚𝐠𝐞𝐝_
 
-wip
+rest is a wip. sign ata and ill work faster
 
 https://thecrennyceo.atabook.org/
