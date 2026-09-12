@@ -7,13 +7,13 @@
     <image width="430" src=https://file.garden/am8KLdl-Vhmhb-x1/tumblr_5e6dcc3d99d047f7457c4713e45a12de_73e1c3f0_2048.png>
 
 <p align="center">
-    𝐬𝐞𝐫𝐫𝐚𝐰𝐨𝐧𝐠 𝐭𝐫𝐮𝐭𝐡𝐞𝐫
+    𝘴𝘦𝘳𝘳𝘢𝘸𝘰𝘯𝘨 𝘵𝘳𝘶𝘵𝘩𝘦𝘳
 
 <p align="center">
-    𝐥𝐮𝐢𝐬 𝐬𝐞𝐫𝐫𝐚 𝐲𝐮𝐦𝐞
+    𝘭𝘶𝘪𝘴 𝘴𝘦𝘳𝘳𝘢 𝘺𝘶𝘮𝘦
 
 <p align="center">
-    𝐜+𝐡 𝐚𝐧𝐝 𝐰𝟐𝐢 𝐡𝐞𝐚𝐯𝐢𝐥𝐲 𝐞𝐧𝐜𝐨𝐮𝐫𝐚𝐠𝐞𝐝
+    𝘤+𝘩 𝘢𝘯𝘥 𝘸2𝘪 𝘩𝘦𝘢𝘷𝘪𝘭𝘺 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦𝘥
 
 rest is a wip. sign ata and ill work faster
 
