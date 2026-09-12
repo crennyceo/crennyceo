@@ -17,6 +17,6 @@
 
 <image align="left" width="165" src="https://file.garden/am8KLdl-Vhmhb-x1/tumblr_858ac3d55c6e2ef972d18b77c9c86e57_933bdceb_500__fliter--purple-warm__channel--red__mode--normal.png" > ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𝘰𝘯𝘭𝘺 𝘰𝘯 𝘱𝘵 𝘸𝘩𝘦𝘯 𝘢𝘴𝘬𝘦𝘥
 <p align="center">
-    𝘪 𝘤𝘳𝘰𝘸𝘯 𝘢𝘯𝘺𝘰𝘯𝘦 𝘪 𝘸𝘢𝘯𝘯𝘢 𝘣 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘸𝘪𝘵𝘩
+    𝘪 𝘤𝘳𝘰𝘸𝘯 = 𝘪 𝘸𝘢𝘯𝘯𝘢 𝘣 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <a href="https://rentry.co/ctkm-ptverse">𝘳𝘦𝘯𝘵𝘳𝘺</a> ⠀⠀.⠀⠀ wip⠀⠀ . ⠀⠀wip
